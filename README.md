@@ -2,7 +2,7 @@
 > **用自然语言，绘制专业图表**
 
 ## 在线网站
-**（推荐！）🚀全面升级，更强大好用的绘图工具 https://smart-diagram.aizhi.site/**
+**（推荐！）🚀全面升级，更强大好用的绘图工具 https://smart-draw.aizhi.site/**
 
 
 
